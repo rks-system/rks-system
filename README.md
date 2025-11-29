@@ -1,5 +1,5 @@
 <div align="center">
-<img width="500" height="46" alt="tumblr_f0549c9b138f9b687b9a190104d6e2e5_0424535b_400" src="https://github.com/user-attachments/assets/5a7b1063-9f1b-4a73-b805-f21b513e7f77" />
+<img width="1250" height="74" alt="Untitled2425-20230708184656" src="https://github.com/user-attachments/assets/3557105f-ed0b-4fe0-93c9-2c691cd9e373" />
   
 #### [ THE TEMPEST ]
 ![Profile views](https://komarev.com/ghpvc/?username=N0L1H0L1C&color=%236f00af)
@@ -8,13 +8,43 @@
 
 ***hello hi welcome to my readme***
 
-`call me ren or noli as you'd like`
+`call me ren or noli as you'd like.`
 
-`prns: he/him, genderfluid`
+`prns: he/him, genderfluid.`
 
 <details>
     <summary>interests!</summary>
-    <div>
-      asdfxghbjk
-    </div>
+    <p>
+      
+      pressure, madcom, the mimic, regretevator, ena, rblx myths,
+      
+        deepsea, cats, bunnies and a few more. . .
+    
+  </p>
   </details>
+
+`married to noli!!`
+
+![e4a5605220a546fbbbf593ce576fd153b1339f78](https://github.com/user-attachments/assets/7473ef47-c89c-4178-9bb1-3d8ee43b8fed)
+
+  <details>
+    <summary>before you interact!</summary>
+    <p>
+      
+      would yap a lot, social-anxi, slow mayb.
+      
+  </p>
+  </details>
+
+  <details>
+    <summary>do not interact if...</summary>
+    <p>
+      
+      basic dni crit, attention seekers, kids under 14, shit fandoms.
+      
+      i wont say what r the shit fandoms, you know them yourself.
+    
+  </p>
+  </details>
+
+<img width="1250" height="74" alt="Untitled2425-20230708184658" src="https://github.com/user-attachments/assets/e98643f9-4d25-46e7-93f8-9559e5e244ae" />
