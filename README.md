@@ -6,5 +6,15 @@
 
 <img width="500" height="30" alt="5e0c488c" src="https://github.com/user-attachments/assets/ff5e2f82-ea18-4ab0-8e9f-fb0a3310a372" />
 
-WILL BE DONE SOON
-###### (ts pmo smh)
+***hello hi welcome to my readme***
+
+`call me ren or noli as you'd like`
+
+`prns: he/him, genderfluid`
+
+<details>
+    <summary>interests!</summary>
+    <div>
+      asdfxghbjk
+    </div>
+  </details>
