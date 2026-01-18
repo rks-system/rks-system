@@ -8,7 +8,7 @@
 
 <img width="625" height="30" alt="5e0c488c" src="https://github.com/user-attachments/assets/ff5e2f82-ea18-4ab0-8e9f-fb0a3310a372" />
 
-`call me rya or r as you'd like.`
+`call me ryoshu or r as you'd like.`
 
 `prns: he/him, genderfluid.`
 
@@ -25,7 +25,9 @@
   </p>
   </details>
 
-`married to myth!noli!!`
+`noli, my beloved husband!!`
+
+`emil sinclair irl.`
 
 ![e4a5605220a546fbbbf593ce576fd153b1339f78](https://github.com/user-attachments/assets/7473ef47-c89c-4178-9bb1-3d8ee43b8fed)
 
