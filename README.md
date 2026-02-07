@@ -25,10 +25,6 @@
   </p>
   </details>
 
-`noli, my beloved husband!!`
-
-`emil sinclair irl.`
-
 ![e4a5605220a546fbbbf593ce576fd153b1339f78](https://github.com/user-attachments/assets/7473ef47-c89c-4178-9bb1-3d8ee43b8fed)
 
   <details>
